@@ -3,7 +3,7 @@
 Cricket isn’t just a sport—it’s a passion that unites millions of fans across the globe! From thrilling T20 matches to intense Test series, fans crave access to live action anytime, anywhere. That’s where TouchCric comes in, offering a seamless platform to stay connected with your favorite matches.
 
 # 🎯 <a href="touchcric-live.com">🌐🌐⏬ Download TouchCric APK 🌐🌐⏬</a>
-<a href="touchcric-live.com">TouchCric</a> is a cricket streaming platform designed to let you watch live matches on your mobile devices and computers. Its user-friendly design ensures cricket enthusiasts never miss a single boundary, wicket, or heart-stopping moment, no matter where they are!
+<a href="https://touchcric-live.com">TouchCric</a> is a cricket streaming platform designed to let you watch live matches on your mobile devices and computers. Its user-friendly design ensures cricket enthusiasts never miss a single boundary, wicket, or heart-stopping moment, no matter where they are!
 
 ## 🌟 Key Features of TouchCric
 📺 1. Live Streaming
